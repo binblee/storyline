@@ -82,3 +82,27 @@
 
 ![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjIyMTg0NTkwN15BMl5BanBnXkFtZTgwMTUwNTQ3MTE@._V1_SY1000_SX1250_AL_.jpg)
 
+
+
+## 1936 ##
+
+### Modern Times ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTU2NDA1NTUzOV5BMl5BanBnXkFtZTcwODc0NDQyNw@@._V1_SY1000_CR0,0,1427,1000_AL_.jpg)
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BZjJhN2RjY2MtNzBmYy00YjJjLWEyYTAtOWNhZmZkZTkwOTRjXkEyXkFqcGdeQXVyNTkyNDA4MzM@._V1_.jpg)
+
+
+
+## 1938 ##
+
+### The Adventures of Robin Hood ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BYzViYmY3NTQtNmFmZC00NTg2LTllNWYtMzY5OTc5YzkwNzI4XkEyXkFqcGdeQXVyNTQxMTIxMTk@._V1_.jpg)
+
+
+
+### The Lady Vanishes ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTc1MzAzODAzM15BMl5BanBnXkFtZTgwMjg5NTQ3MTE@._V1_SY1000_CR0,0,1364,1000_AL_.jpg)
+
