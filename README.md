@@ -32,8 +32,6 @@
 
 ### Sunrise ###
 
-![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTYzMjEyNzQ4OV5BMl5BanBnXkFtZTgwMjgzNTE0MTE@._V1_.jpg)
-
 ![](https://i.ytimg.com/vi/FuxoOUw43o4/hqdefault.jpg)
 
 
@@ -105,4 +103,53 @@
 ### The Lady Vanishes ###
 
 ![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTc1MzAzODAzM15BMl5BanBnXkFtZTgwMjg5NTQ3MTE@._V1_SY1000_CR0,0,1364,1000_AL_.jpg)
+
+
+
+## 1939 ##
+
+### Mr. Smith Goes to Washington ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjQwMTU5NzA5Ml5BMl5BanBnXkFtZTgwNjk4Nzc5MTE@._V1_SY1000_CR0,0,1371,1000_AL_.jpg)
+
+
+
+### The Wizard of Oz ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTU1Mzg2ODcwNV5BMl5BanBnXkFtZTcwMzg4NTkxNA@@._V1_SY1000_CR0,0,1370,1000_AL_.jpg)
+
+
+
+### Gone with the Wind ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BNzhjNjI0YmYtZWY3Yi00MzJjLWJmZDgtMDE4NDNjYWVlMTA3XkEyXkFqcGdeQXVyMjE5MzM3MjA@._V1_.jpg)
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BODViOWY1YWUtMTE4OC00Yjk5LThjNTUtNTcxZWIxZTEwYjNmXkEyXkFqcGdeQXVyMzk3NTUwOQ@@._V1_SX756_CR0,0,756,999_AL_.jpg)
+
+
+
+## 1940 ##
+
+### Rebecca ###
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BYjM0ZTI3OTktN2QxNy00NGY0LThhZjQtZDNkMzMwYWE3ODQ4XkEyXkFqcGdeQXVyMTI3MDk3MzQ@._V1_SY1000_CR0,0,1333,1000_AL_.jpg)
+
+### The Great Dictator ###
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTU4NzA2MDAxN15BMl5BanBnXkFtZTcwMjk3NzE5Ng@@._V1_SY1000_CR0,0,776,1000_AL_.jpg)
+
+
+
+### The Grapes of Wrath ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjMwMjE4NTcwNl5BMl5BanBnXkFtZTgwNjY4NTIwMjE@._V1_SY1000_CR0,0,1291,1000_AL_.jpg)
+
+
+
+### The Philadelphia Story ###
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTYzNTI4NjUwNl5BMl5BanBnXkFtZTcwNjQ5MTUyNw@@._V1_SY1000_CR0,0,1278,1000_AL_.jpg)
+
+
+
+### His Girl Friday ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTc2MDIxODgxMl5BMl5BanBnXkFtZTgwMzY3NzM3MDI@._V1_SY1000_CR0,0,1341,1000_AL_.jpg)
 
