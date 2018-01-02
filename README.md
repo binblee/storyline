@@ -151,5 +151,13 @@
 
 ### His Girl Friday ###
 
-![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTc2MDIxODgxMl5BMl5BanBnXkFtZTgwMzY3NzM3MDI@._V1_SY1000_CR0,0,1341,1000_AL_.jpg)
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjAyMDE0MDM1N15BMl5BanBnXkFtZTgwMTQ3NjM3OTE@._V1_.jpg)
+
+
+
+## 1941 ##
+
+### Citizen Kane ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTYxNzU3MzEwM15BMl5BanBnXkFtZTcwMTEyODQ5Ng@@._V1_SY1000_CR0,0,1276,1000_AL_.jpg)
 
