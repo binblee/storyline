@@ -167,3 +167,19 @@
 
 ![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjA1MzAzNzQxOF5BMl5BanBnXkFtZTgwOTc0MjY5NzE@._V1_SY1000_CR0,0,808,1000_AL_.jpg)
 
+
+
+## 1942 ##
+
+### Casablanca ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMTk2MDc0NjE2MV5BMl5BanBnXkFtZTcwMTM2MjYwOA@@._V1_SX1237_CR0,0,1237,999_AL_.jpg)
+
+
+
+## 1943 ##
+
+### Shadow of a Doubt ###
+
+![](https://images-na.ssl-images-amazon.com/images/M/MV5BMjAxOTMxNTY3NV5BMl5BanBnXkFtZTgwNDc4NTIwMjE@._V1_SY1000_CR0,0,1250,1000_AL_.jpg)
+
